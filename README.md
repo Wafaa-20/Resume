@@ -1,1 +1,3 @@
-\![image](https://github.com/user-attachments/assets/d61d7c71-7fbc-4814-aeea-246a5408209c)
+![My CV](![image](https://github.com/user-attachments/assets/ed4b0914-8332-43d1-83b0-429cfe98cfdf)
+)
+
